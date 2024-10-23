@@ -4,4 +4,4 @@
 
 El **Granada CF** jugo el año pasado en *primera division y descendio.* Actualmente en la temporada **2024/25** juega en Segunda.
 
-[()]
+[(hisotria.png)]
