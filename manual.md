@@ -6,7 +6,7 @@ El **Granada CF** jugo el año pasado en *primera division y descendio.* Actualm
 
 [Escudos historias](hisotria.png)
 
-
+![1931](URL_de_la_imagen)
 
 6 Jugadores del Granada  
 1. Uzuni
